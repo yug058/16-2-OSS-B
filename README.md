@@ -8,6 +8,6 @@
 
 팀원2 :
 
-팀원3 :
+팀원3 : Son JoonYeong / soong2hyung@gmail.com
 
 팀원4 :
