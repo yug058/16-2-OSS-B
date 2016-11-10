@@ -6,8 +6,8 @@
 
 팀원1 : Lee Dongjin / dj1leerr@gmail.com
 
-팀원2 :
+팀원2 : Kim Jinhun / karlos1113@gmail.com
 
-팀원3 : Son JoonYeong / soong2hyung@gmail.com
+팀원3 :
 
 팀원4 :
