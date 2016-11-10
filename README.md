@@ -4,10 +4,14 @@
 
 팀장 : 이재혁 / wogur0310@gmail.com
 
-팀원1 : 
+팀원1 : Lee Dongjin / dj1leerr@gmail.com
 
-팀원2 : 안영범 / yug2875@gmail.com
+팀원2 : Kim Jinhun / karlos1113@gmail.com
 
-팀원3 :
+팀원3 : Kim Ha Yeon / haaiye@naver.com
 
-팀원4 :
+팀원4 : 안영범 / yug2875@gmail.com
+
+팀원5 :
+
+팀원6 :
