@@ -4,7 +4,7 @@
 
 팀장 : 이재혁 / wogur0310@gmail.com
 
-팀원1 :
+팀원1 : 안영범 / yug2875@gmail.com
 
 팀원2 :
 
